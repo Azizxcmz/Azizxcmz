@@ -2,4 +2,4 @@
 - 👀 I’m interested in art and games.
 - 🌱 I’m currently learning to code and pixel art. 
 - 💞️ I’m looking to collaborate on designing games.
-- 📫 How to reach me... NEVER!
+- 📫 How to reach me... you can't!
